@@ -1,1 +1,0 @@
-# fullviewapp.ua
